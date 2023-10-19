@@ -19,7 +19,7 @@
 
 如果你有任何问题或需要进一步信息，请通过 [QQ:1464435902](http://wpa.qq.com/msgrd?v=3&uin=1464435902&site=qq&menu=yes) 联系我。
 
-<a target="_blank" href="https://qm.qq.com/cgi-bin/qm/qr?k=20DOBs-1DGGSn7yOm8D4irajsRD1Z-wf&jump_from=webapi&authKey=fPv6JfZjlo14bKvQAG9tAqEhGbShAFDfS5XqN27cWkPXJCSJpRYwGKurI8YDgYav"><img border="0" src="//pub.idqqimg.com/wpa/images/group.png" alt="LanSharing 交流反馈" title="LanSharing 交流反馈"></a>
+- <a target="_blank" href="https://qm.qq.com/cgi-bin/qm/qr?k=20DOBs-1DGGSn7yOm8D4irajsRD1Z-wf&jump_from=webapi&authKey=fPv6JfZjlo14bKvQAG9tAqEhGbShAFDfS5XqN27cWkPXJCSJpRYwGKurI8YDgYav">QQ群:799034061</a>
 
 ---
 
